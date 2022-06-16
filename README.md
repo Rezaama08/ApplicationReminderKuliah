@@ -73,4 +73,4 @@
 
 
 **Dibuat Oleh :**\
-NAMA : Riyagung Nuryusufa Tranggono Adi Prasety
+NAMA : Reza Amalia Amnesti
